@@ -60,8 +60,6 @@ Tudo bem amigo, estamos aqui.
 Exatamente onde você me pagou para
 trazê-lo. A questão é: por quê?
 Um carro esportivo azul metálico, dos anos 60, emerge do
-Traduzido do Inglês para o Português - www.onlinedoctranslator.com
-2.
 sombras. Cagey, suave, ele chamaria a atenção ao dirigir em qualquer
 cruzamento do mundo. Conheça FINN MCMISSILE.
 FINAL
@@ -98,7 +96,6 @@ Estamos com Finn enquanto a nave segue em frente, atravessando a
 escuridão com propósito. De repente, pequenas chamas aparecem, talvez a
 um nó ou mais de distância. Então UAU!!! Uma chama surge acima de Finn, o
 navio. Ilumina uma TORRE DE ÓLEO.
-3.
 THWAP! Finn dispara um GANCHO na torre e BALANÇA em direção a ela. Ele
 vai bater na lateral com força bruta quando ---
 - - - SEUS PNEUS brotam um exoesqueleto magnético. Ele FURA-SE à torre e
@@ -132,7 +129,6 @@ cuidadosamente embalada em espuma. Finn tira fotos furiosamente.
 PACER INTROESSADO
 Oh. Uma câmera de televisão. O que isso
 realmente faz?
-4.
 PROFESSOR ZUNDAPP
 Esta câmera é extremamente perigosa.
 FINAL
@@ -166,7 +162,6 @@ A caixa é levantada, revelando um Leland Turbo ESMAGADO E CUBADO.
 Os olhos de Finn se arregalam. De repente --- WHOOOOHHH! Outra chama da
 torre surge atrás dele, lançando uma SOMBRA em forma de Finn sobre o
 Professor. Ele olha para cima.
-5.
 PROFESSOR ZUNDAPP
 É Finn McMíssil! Ele viu a câmera! Mate ele!!
 Finn DESCARGA com balas enquanto começa a recuar --- Ele PÁRA:
@@ -200,7 +195,6 @@ As luzes de ré de Finn aparecem. Ele CONDUZ DE VOLTA para fora da borda do
 heliporto até o CHOQUE dos outros carros.
 Finn cai. Ele se vira para grelhar primeiro, cortando a água de maneira
 limpa.
-6.
 Ele EMERGE, agora brotando HYDROFOIL e sai em alta velocidade.
 GREM
 (perplexo)
@@ -235,7 +229,6 @@ Ele se aproxima de um sedã quebrado na beira da estrada. Ele dirige até a
 frente, vendo o rosto de OTIS pela primeira vez.
 MATÉRIA
 Olá, Otis!
-7.
 OTIS
 Olá, Mater. Meu Deus, sinto muito. Achei
 que desta vez conseguiria, mas...
@@ -272,7 +265,6 @@ OTIS
 Ele deve estar muito animado com a
 ideia de ganhar sua quarta Piston Cup.
 Quatro! Uau!
-8.
 MATÉRIA
 Sim, estamos muito orgulhosos dele. Mas eu
 realmente gostaria que ele se apressasse e
@@ -345,7 +337,6 @@ MAC
 (para Lizzie, um aparte) Essas
 saudações de melhores amigas ficam
 mais longas a cada ano.
-10.
 MATÉRIA
 (para McQueen)
 Você está pronto para se divertir muito?
@@ -381,7 +372,6 @@ McQueen
 Qual é, você sabe com quem está
 falando? Este é o Relâmpago McQueen.
 Eu posso lidar com qualquer coisa.
-11.
 EXT. MOLAS DO RADIADOR - DIA
 Mater e McQueen rolam em um velho trilho de trem, sem pneus. Eles
 estão em seus aros.
@@ -416,7 +406,6 @@ O tubo de escape arrota. McQueen e Mater estão fora de vista.
 INT. MOLAS DO RADIADOR - Anoitecer
 O sol se põe. McQueen e Mater chegam à cidade. McQueen parece exausto.
 Mater ainda está cheio de energia.
-12.
 MATÉRIA
 Rapaz, esse foi o melhor dia de todos! E
 minha lembrança favorita?
@@ -454,7 +443,6 @@ McQueen
 Obrigado pela compreensão.
 MATÉRIA
 Sim claro. Vá em frente e divirta-se agora.
-13.
 McQueen
 Tudo bem, então. Até breve, amigo!
 McQueen vai embora. Mater o observa partir.
@@ -489,7 +477,6 @@ Oh sim. Quão ridículo isso seria?
 MATÉRIA
 Agora, posso começar vocês dois
 pombinhos com algumas bebidas?
-14.
 McQueen
 Sim. Eu vou querer o meu habitual.
 SALLY
@@ -529,7 +516,6 @@ fortuna petrolífera, passou de um bebedor de
 gasolina a um carro elétrico e dedicou sua
 vida a encontrar um combustível renovável e
 de queima limpa!
-15.
 Imagens de torres de petróleo demolidas; Miles Axlerod sendo convertido
 para elétrico; cientistas de laboratório testando produtos químicos.
 MEL DORADO (NA TV) Agora
@@ -568,7 +554,6 @@ Do outro lado da tela:AO VIVO DE ROMA, ITÁLIA.Conhecemos o carro de corrida
 de Fórmula FRANCESCO BERNOULLI.
 FRANCESCO (NA TV)
 É uma honra, Signore Dorado. Para você.
-16.
 MEL DORADO (NA TV) Miles,
 por que não convida o Relâmpago
 McQueen?
@@ -607,7 +592,6 @@ Ele é o melhor carro de corrida do mundo
 inteiro.
 Fillmore e Sarge olham em volta. Mater está visível na parte de trás do bar em
 um telefone do escritório.
-17.
 SARGE
 Uh-oh...
 FRANCESCO (NA TV)
@@ -647,7 +631,6 @@ fosse sua língua materna.
 McQueen
 Espere, por que você sabe o nome dele? E
 não diga assim. São três sílabas, não dez.
-18.
 SALLY
 O que? Ele é bonito de se olhar. Você
 sabe, com rodas abertas e tudo.
@@ -683,7 +666,6 @@ MCQUEEN (NO TELEFONE)
 Sim, olá, aqui é Relâmpago McQueen. Olha,
 não gosto que meu melhor amigo seja
 insultado assim.
-19.
 FRANCESCO (NA TV)
 McQueen! Esse era seu melhor amigo? Esta é
 a diferença entre você e Francesco. Francesco
@@ -721,7 +703,6 @@ dê um acordo, querido. Ka-chow!
 O lugar irrompe em felicidades.
 MOMENTOS DEPOIS - Excitação geral quando McQueen sai da cabine
 telefônica onde Sally espera. Fora do visual dela:
-20.
 McQueen
 Eu sei eu sei. Eu acabei de voltar. Mas não
 vamos demorar e ---
@@ -759,7 +740,6 @@ ostentando o emblema do “Team McQueen”, também parece empolgado.
 Japão.
 - Mater se despede com seu gancho ao lado de McQueen, Guido, Luigi, Fillmore
 e Sarge como ---
-21.
 - - - o resto de Radiator Springs os observa embarcar em um avião. Gritos
 vermelhos.
 - NO JATO, MAIS TARDE. McQueen e Mater são os únicos acordados,
@@ -796,7 +776,6 @@ McQueen
 Mater!
 LEWIS HAMILTON
 Ei, McQueen, aqui!
-22.
 São os companheiros pilotos JEFF GORVETTE e LEWIS HAMILTON. McQueen agora
 não tem escolha a não ser deixar Mater ir.
 McQueen
@@ -832,7 +811,6 @@ Diferente do que?
 McQueen
 Bem, apenas... me ajude aqui, amigo.
 EU ---
-23.
 MATÉRIA
 Você precisa de ajuda? Droga, por que você
 simplesmente não disse isso? É isso que um
@@ -870,7 +848,6 @@ Ela é um relâmpago
 Namorada de McQueen.
 FRANCESCO
 Ahhh.
-24.
 MATÉRIA
 Ela é uma grande fã sua.
 FRANCESCO
@@ -908,7 +885,6 @@ MATÉRIA
 Vou pegar um para você. Você se importa se eu
 me emprestar alguns dólares para uma daquelas
 bebidas?
-25.
 McQueen
 (poderia matá-lo)
 Eles são gratuitos, Mater.
@@ -942,7 +918,6 @@ Luzes acariciam o palco principal onde uma multidão se formou.
 VOZ
 Senhoras e senhores... Sir Miles Axlerod!
 MILES AXLEROD passa por uma fonte infinita e aparece.
-26.
 MILHAS AXLEROD
 É uma honra apresentar a vocês os
 competidores do primeiro Grande Prêmio
@@ -981,7 +956,6 @@ Eles disseram que se você pudesse tirar fotos
 mais próximas da próxima vez, seria ótimo.
 FINAL
 Essefoi a mensagem de Londres?
-27.
 HOLLEY
 Ah, não, não. Não senhor. Hum, as
 plataformas de petróleo em que você
@@ -1017,7 +991,6 @@ Mudança de planos. Você vai conhecer o
 americano.
 HOLLEY
 O que, eu?
-28.
 FINAL
 Aqueles bandidos estavam na plataforma de
 petróleo. Se me virem, toda a missão estará
@@ -1054,7 +1027,6 @@ grátis, certo?
 Deixe vir. Um pouco mais. Vamos, vamos, é
 grátis! Você está chegando lá... Colher!
 O chef cede. Pega uma bola do tamanho de uma bola de beisebol.
-29.
 MATÉRIA
 Ai está. Agora ISSO é uma bola de sorvete.
 CHEFE DE SUSHI
@@ -1093,7 +1065,6 @@ pistache grátis. Já virou!
 McQueen
 Senhor Axlerod, posso explicar. Este é o
 Mater.
-30.
 MILHAS AXLEROD
 Eu o conheço. Este é o cara que ligou para o
 programa de televisão.
@@ -1129,7 +1100,6 @@ ir!
 Alguém aponta para Mater por um corredor. Ele vira a esquina ---
 - - - e PÁRA. Encontra-se diante de DUAS PORTAS DE BANHEIRO, nenhuma das
 quais indica claramente MASCULINO ou FEMININO.
-31.
 MATÉRIA
 (confuso)
 O que...
@@ -1163,7 +1133,6 @@ entrar, furtivo. De repente, inexplicavelmente, seu corpo se quebra como
 um ovo, revelando um MUSCLE CAR AMERICANO embaixo. Os pedaços do
 Gremlin desaparecem sob ele, claramente seu disfarce. Este é ROD REDLINE
 - Agente Americano.
-32.
 HASTE VERMELHA
 Ok, McMíssil. Estou aqui. É hora da
 queda.
@@ -1197,7 +1166,6 @@ FINAL
 Qual é o problema, Shiftwell?
 HOLLEY
 Ele está no banheiro.
-33.
 FINAL
 Então entre!
 HOLLEY
@@ -1234,7 +1202,6 @@ MATÉRIA
 Você está bem?
 HASTE VERMELHA
 Estou bem.
-34.
 GREM
 Ei. Caminhão de reboque.
 Mater se volta para Grem e Acer.
@@ -1272,7 +1239,6 @@ retrovisor de Holley confirma que o dispositivo está com ele.
 MATÉRIA
 (para ele mesmo)
 Sorvete de pistache Dadgum.
-35.
 HOLLEY (NO RÁDIO)
 Este não pode ser ele.
 FINN (NO RÁDIO)
@@ -1310,7 +1276,6 @@ Sim. Tudo bem eu já entendi---
 MATÉRIA
 . . . E antes dos dois, há os ônibus Tipo 2 –
 meu amigo Fillmore é um deles.
-36.
 HOLLEY
 Ouvir! Devíamos encontrar um lugar mais
 privado.
@@ -1349,8 +1314,6 @@ MATÉRIA
 Bem, acredite. Minha nova namorada acabou
 de dizer isso. Ei, lá está ela.
 Mater aponta Holley, que está ao alcance da voz.
-Traduzido do Inglês para o Português - www.onlinedoctranslator.com
-37.
 MATÉRIA
 (gritando)
 Ei! Ei moça!
@@ -1383,7 +1346,6 @@ empurrado para frente e Rod é abastecido com gasolina da marca Allinol.
 HASTE VERMELHA
 Alinol? Obrigado, pessoal. Ouvi dizer que
 essas coisas são boas para você.
-38.
 PROFESSOR ZUNDAPP (OS)
 Então você pensa.
 O Professor emerge da escuridão, atrás de Rod.
@@ -1422,7 +1384,6 @@ HASTE VERMELHA
 Sua mãe. Ah, não, me desculpe. Foi sua
 irmã. Você sabe, não consigo diferenciá-los
 hoje em dia.
-39.
 GREM
 (teve o sufuciente)
 Posso começar agora, professor?
@@ -1460,7 +1421,6 @@ PROFESSOR ZUNDAPP
 Esse é ele. Ele é o único.
 GREM
 Entendido, Professor Z.
-40.
 HASTE VERMELHA
 Não!
 Enquanto Grem liga ainda MAIS a máquina, o Professor faz uma ligação.
@@ -1498,7 +1458,7 @@ Primeiro, Allinol, fazendo sua estreia esta noite
 como o combustível necessário para todos esses
 grandes campeões.
 (MAIS)
-41.
+.
 BRENT MUSTANGBURGER (VO) (CONT'D) Em
 segundo lugar, o curso em si, e é diferente de tudo que já
 vimos. David, como exatamente funciona essa
@@ -1535,7 +1495,6 @@ percurso! A sujeira deveria ser o grande
 equalizador nesta corrida.
 OS GRÁFICOS DOS CURSOS agora isolam um trecho após as primeiras curvas,
 rotulando-o como "SEÇÕES DE SUJEIRA".
-42.
 BRENT MUSTANGBURGER (VO) O
 carro de rali francês Raoul ÇaRoule conta com
 um grande impulso por lá.
@@ -1574,7 +1533,6 @@ Ele éentãosendo derrotado hoje.
 As luzes de partida diminuem de VERMELHO para AMARELO e para VERDE. A
 corrida começa. Francesco rapidamente assume a liderança. Ele está se
 afastando em segundos.
-43.
 NO PIT ROW - RASTREAMOS enquanto os vários Chefes de Equipe em seus carrinhos
 gritam ordens para seus pilotos. Terminamos com a Equipe McQueen. Não há chefe
 de tripulação, apenas uma equipe de aparência sólida.
@@ -1610,7 +1568,6 @@ E então descobrimos quem está por trás de
 tudo isso.
 NA PISTA - VÁRIAS TIRAS DA CORRIDA por Tóquio enquanto Francesco
 amplia sua liderança e McQueen tenta recuperar terreno.
-44.
 NO POÇO DE MCQUEEN - Mater observa os monitores, os vê se
 aproximando da seção de terra.
 MATÉRIA
@@ -1646,7 +1603,6 @@ BRENT MUSTANGBURGER (VO)
 Francesco perdeu muito impulso na terra. Ele
 tem muito trabalho pela frente se quiser voltar
 a esta corrida.
-45.
 VÁRIAS FOTOS DE TÓQUIO enquanto os pilotos se movem pela Rainbow
 Bridge. Aos poucos, Francesco segue em direção à frente, em direção ao
 Relâmpago McQueen enquanto CORTAMOS PARA ---
@@ -1684,7 +1640,6 @@ ACER
 E ele?
 GREM
 E ele? Ele está nos boxes!
-46.
 ACER
 Não por muito tempo.
 Acer sai, com propósito.
@@ -1719,7 +1674,6 @@ Ela se vira. Ele se foi, deixando apenas uma janela aberta.
 FINN (NO RÁDIO)
 Tire-o dos buracos agora!
 NO POÇO DE MCQUEEN. Um carro WHIPS BY OS
-47.
 MATÉRIA
 Uau! Alguns deles são muito barulhentos.
 HOLLEY (no rádio de MATER) Você
@@ -1755,7 +1709,6 @@ FINN (NO RÁDIO)
 Eles estão vindo, Shiftwell.
 HOLLEY (NO RÁDIO)
 Sim eu sei.
-48.
 FINN (NO RÁDIO)
 Tire-o daí.
 HOLLEY
@@ -1791,7 +1744,6 @@ rapidamente.
 FINN (NO RÁDIO)
 Mantenha-o em movimento. Estou a caminho.
 ON MATER - Ele vira uma esquina e vê uma floricultura.
-49.
 MATÉRIA
 Ei, nova amiga? Você gosta de flores?
 NA PISTA - McQueen, ao ouvir isso, fica surpreso.
@@ -1826,7 +1778,6 @@ ACER
 Desta vez vou garantir que você continue
 morto.
 Ele atinge a chama. UUUUUUUUUUUU!!
-50.
 EM OUTRA RUA - Mater segue em frente, ainda procurando por Holley.
 Assim que ele passa pela entrada do beco onde Finn encara a morte:
 HOLLEY (NO RÁDIO)
@@ -1862,7 +1813,7 @@ McQueen!
 NO BECO - Finn respira fundo e examina seus danos.
 MATÉRIA
 Isso foi legal! Ei, posso pegar seu autógrafo?
-51.
+.
 Mater se aproxima quando uma MASSA DE FÃS DE CORRIDA irrompe pela porta,
 bloqueando momentaneamente a visão de Mater sobre Finn. Assim que os fãs
 passaram, Finn desapareceu.
@@ -1900,7 +1851,6 @@ Para realmente destruir o sonho de alguém, você
 deve primeiro aumentar muito suas esperanças.
 NA GARAGEM DE MCQUEEN - Mater procura por todos enquanto McQueen se
 aproxima.
-52.
 McQueen
 Matéria.
 MATÉRIA
@@ -1939,7 +1889,6 @@ McQueen
 Uma namorada imaginária, lança-chamas. É
 exatamente por isso que não levo você
 nessas coisas.
-53.
 MATÉRIA
 Talvez se eu, não sei, conversasse com
 alguém e explicasse o que
@@ -1976,7 +1925,6 @@ MILHAS AXLEROD
 Allinol é seguro! Combustível alternativo é
 seguro! Não há como meu combustível ter
 feito esses carros pegarem fogo!
-54.
 NO ESTÚDIO DE TV - Darrell, Brent e David conversam para a câmera.
 DARRELL CARTRIP
 Bem, o júri ainda pode decidir se Allinol
@@ -2012,7 +1960,6 @@ rolamento de esferas então brota PERNAS MECÂNICAS, tripé e SAI,
 revelando-se uma pequena CÂMERA.
 NA SALA PRINCIPAL - SALA DO ADMIRAL - CONTÍNUO
 Mater segue o carro de segurança, nervoso.
-55.
 MATÉRIA
 Cachorra. Isto é sobre o meu refrão, não é?
 Eu sei que deveria ter verificado, mas não
@@ -2051,7 +1998,6 @@ ele antes que ele pare. Eu chamo isso de
 “O que eu
 acidentalmente fiz com meu amigo Luigi uma
 vez.”
-56.
 Mater faz seus melhores (piores) movimentos de caratê enquanto Acer e Grem
 dobram a esquina.
 GREM
@@ -2087,7 +2033,6 @@ pare.
 Finn derrapa, chicoteando Mater em 180º, de modo que Mater agora está
 rebocando Finn.
 Grem produz um ROCKET e alinha Finn como seu alvo.
-57.
 Finn, sem hesitação, dispara um MINI ROLLING-JACK. O macaco se dirige em
 direção a Grem, ancora-se sob sua estrutura e o vira como uma tartaruga, mas
 não antes de Grem disparar o foguete ---
@@ -2122,7 +2067,6 @@ MATÉRIA
 Ei, droga. É minha namorada imaginária!
 HOLLEY
 Vamos! Entre aqui!
-58.
 Mater acelera em direção à rampa de Siddeley, Holley.
 MATÉRIA
 (para Holley)
@@ -2155,7 +2099,6 @@ INT. LOBBY - HOTEL - TÓQUIO - DIA
 FECHAR COM uma NOTA manuscrita (er, escrita em pneus?) Em rabiscos
 infantis. Não vemos tudo, apenas um pouco. A voz de Mater começa a nota
 com a primeira frase, mas nós DISSOLVEMOS na voz de McQueen.
-59.
 McQueen
 “Sinto muito pelo que fiz. Não quero ser a
 causa de você perder mais corridas. Quero
@@ -2193,7 +2136,6 @@ Espero que esse dispositivo não tenha caído.
 MATÉRIA
 Foi o mais perto que estive de perder meu
 voo! Aquilo foi ---
-60.
 Com um BRAÇO ROBÓTICO, Holley pega o DISPOSITIVO que Rod Redline
 escondeu embaixo de Mater. Ela arranca com um GOOSE.
 MATÉRIA
@@ -2233,7 +2175,7 @@ complicada mistura de peças metálicas coladas.
 HOLLEY
 (para Mater, com expectativa)
 O que é isso?
-61.
+.
 MATÉRIA
 Bem, esse é um dos piores motores já feitos.
 É um velho V8 de alumínio com sistema
@@ -2275,7 +2217,6 @@ Mater MOVE SEU ASSENTO PARA A FRENTE, através de uma parte do
 holograma para ficar cara a cara com Holley.
 MATÉRIA
 Você é bonita.
-62.
 HOLLEY
 (incomodado)
 Sim tudo bem. Obrigado.
@@ -2315,7 +2256,6 @@ criação de uma força-tarefa informal sobre
 este assunto?
 MATÉRIA
 Espere o que?
-63.
 FINAL
 Você obviamente tem muita
 experiência na área.
@@ -2355,7 +2295,6 @@ UMA MONTAGEM DE PARIS: Mater tenta entrar no tráfego da rotatória;
 mímicos incomodam os turistas na Torre Eiffel; um pintor faz sua mágica com
 um casal pouco atraente; um casal se beijando no lugar mais romântico do
 mundo; podemos até pegar o RESTAURANTE GASTOW'S.
-64.
 A introdução encantadora e discreta termina com uma VISTA Arrebatadora do
 centro de Paris de longe, enquanto descemos para ---
 EXT. RUA - DIA
@@ -2393,7 +2332,6 @@ Papai.
 COMERCIANTES
 - Peças à venda, senhor!
 - Senhor! Peças à venda!
-65.
 NO MERCADO - MOMENTOS DEPOIS
 Mater segue em frente, impressionado com os produtos à venda.
 MATÉRIA
@@ -2429,7 +2367,6 @@ MATÉRIA
 Ei, espere por mim!
 Tomber, derrapando, chuta uma barraca no caminho de Finn. Holley
 rapidamente gira para a DIREITA e desaparece. Onde ela foi?
-66.
 Finn, em sua perseguição, salta outro obstáculo e perde terreno para ---
 - - - Tomber que vira uma esquina e se vê grelhado após grelhado com
 HOLLEY. Ele vira para a esquerda, mas vira, rolando para o lado e
@@ -2466,7 +2403,6 @@ de campo dela. Ela não sabia que você era
 meu informante.
 HOLLEY
 Informante?
-67.
 TÚMULO
 Um novato, hein? Nunca gostei de cheiro de carro
 novo.
@@ -2503,7 +2439,6 @@ Nenhuma idéia. Ele é meu melhor cliente,
 mas sempre faz negócios por telefone.
 Sempre me perguntei por que ele precisa de
 tantas peças. Agora eu sei.
-68.
 MATÉRIA
 Bem, um limão precisa de partes. Não há
 nada mais verdadeiro do que isso.
@@ -2541,7 +2476,6 @@ TÚMULO
 Isso explica tudo!
 FINAL
 O quê, Tomber?
-69.
 TÚMULO
 Gremlin, Pacer, Hugo e Trunkovs nunca
 ficam juntos. Mas eles terão uma reunião
@@ -2580,7 +2514,6 @@ cidade. A menos que haja uma feira de
 trocas ou algo assim.
 (para Holley)
 (MAIS)
-70.
 MATER (CONTINUAÇÃO)
 Ei, como você conseguiu todas
 essas fotos?
@@ -2621,8 +2554,7 @@ HOLLEY
 Segure firme.
 Holley tira a foto de Mater, cegando-o temporariamente.
 MATÉRIA
-Ahh!
-71.
+Ahh!.
 Holley volta para o monitor. O rosto de Mater aparece na tela. Ela
 rapidamente enxerta no caminhão de reboque do Hugo.
 FINAL
@@ -2658,8 +2590,6 @@ SARGE
 Como eles fazem isso? São os mesmos
 ingredientes de casa, mas tem um gosto tão
 bom.
-Traduzido do Inglês para o Português - www.onlinedoctranslator.com
-72.
 FILMORE
 É orgânico, cara.
 SARGE
@@ -2695,7 +2625,6 @@ TIO TOPOLINO
 Isso, e Luigi me contou. Enquanto mamãe
 cozinha, venha passear comigo.
 Eles avançam, tio Topolino ditando o ritmo.
-73.
 McQueen
 Trouxe meu amigo Mater na viagem. E eu
 disse a ele que ele precisava agir de forma
@@ -2734,7 +2663,6 @@ O conforto de McQueen evapora rapidamente.
 TIO TOPOLINO
 Nenhuma luta é mais importante
 que a amizade.
-74.
 Guido e Luigi agora dançam juntos com a menina e sua amiga que
 acabaram de chegar. Todos se divertindo muito. Eles passam por nós
 dançando, passando na frente de MCQUEEN E TIO TOPOLINO. FICAMOS
@@ -2771,7 +2699,6 @@ Perfeito.
 HOLLEY
 Então, Mater, é ativado por voz. Mas você
 sabe, tudo é ativado por voz hoje em dia.
-75.
 MATÉRIA
 O que? Achei que você deveria estar me
 disfarçando.
@@ -2807,7 +2734,6 @@ Finn de repente aperta um botão e interrompe a loucura.
 FINAL
 A ideia é manter a discrição, Mater.
 Mater, castigado, segue em frente.
-76.
 MATÉRIA
 Então eu simplesmente entro e finjo ser esse
 caminhão.
@@ -2849,7 +2775,6 @@ MATÉRIA
 Venho conhecer cada um deles com meu
 melhor amigo, Relâmpago McQueen.
 (MAIS)
-77.
 MATER (CONTINUAÇÃO)
 Eu não conserto isso. Quero me
 lembrar dessas marcas para sempre.
@@ -2888,7 +2813,6 @@ magnífico para a segunda corrida do Grande
 Prémio Mundial.
 EXT. PORTO CORSA, ITÁLIA - DIA
 Sobre um helicóptero arrebatador BEAUTY SHOTS:
-78.
 DAVID HOBBSCAP (VO)
 Bem, Brent, eles chamam esse lugar de “A
 Jóia da Riviera” e é fácil entender por quê.
@@ -2925,7 +2849,6 @@ para responder a perguntas sobre sua
 segurança.
 FOTOGRAFIAS DA CONFERÊNCIA DE IMPRENSA - Miles Axlerod, em um pódio,
 dirige-se à multidão da imprensa. Ele parece um pouco exasperado.
-79.
 MILHAS AXLEROD
 Um painel independente de cientistas
 determinou que o Allinol é totalmente
@@ -2962,7 +2885,6 @@ segunda posição.Número novantacinque.
 Relâmpago Mcqueen!
 Aplausos (não tão estrondosos, obviamente) da multidão. McQueen parece não
 notar.
-80.
 NO POÇO DE MCQUEEN - Sua equipe troca olhares, preocupados.
 LUIGI
 McQueen? Está tudo bem?
@@ -3002,7 +2924,6 @@ FRANCESCO
 (grita)
 Mamãe! Não se preocupe, mamãe!
 (MAIS)
-81.
 FRANCESCO (CONTINUAÇÃO)
 McQueen está muito triste! Eu vou bater
 no traseiro dele hoje!
@@ -3039,7 +2960,6 @@ Parece que você precisa de “assistência na
 estrada”.
 OUTRO HUGO
 Ela estava falando comigo, Ivan.
-82.
 IVAN, O CAMINHÃO DE
 REBOQUE Ah, é mesmo? Prove.
 HOLLEY
@@ -3077,7 +2997,6 @@ enganado porque está muito ocupado rindo
 do tolo. Brilhante.
 Enquanto Finn fala, Mater absorve isso. Ele vê seu próprio reflexo em uma
 janela próxima. Parece estar se vendo com novos olhos.
-83.
 ZZZZATTT! Mater pula ao ouvir o som, vira-se a tempo de ver Ivan CHOCADO
 INCONSCIENTE pelos ZAPPERS de Holley.
 HOLLEY
@@ -3113,7 +3032,6 @@ BRENT MUSTANGBURGER (VO) Os
 pilotos agora estão contornando o grampo e
 descendo a colina em direção à ponte do
 cassino.
-84.
 INT. CASSINO - DIA
 Carros jogam dados com FUZZY DICE; caça-níqueis com hodômetros para
 números de jackpot; garotas de cigarro vendem itens de carro.
@@ -3150,7 +3068,6 @@ Alex”.
 Num plano mais amplo, percebemos que esta exibição é invisível para todos,
 exceto para Mater. Alguns dos outros pseudônimos de Alex incluem “Alexander
 Hu-Don't Go” e “Alexander the Not-So Great”.
-85.
 MATÉRIA
 Ei, você tem muitos akas, Alex. Mas acho que
 faz sentido, visto como você é querido na
@@ -3188,7 +3105,6 @@ Victor Hugo. Sou J. Curby Gremlin, de Detroit.
 É bom te ver. Agora podemos começar.
 VICTOR HUGO
 O chefão já chegou?
-86.
 VLADIMIR TRUNKOV
 Não, ainda não.
 PACER TUBBS
@@ -3223,7 +3139,6 @@ Eu gostaria de poder estar com você neste
 dia tão especial, mas... meu conjunto de
 embreagem quebrou. Você sabe como é.
 Todos os Limões acenam com a cabeça em compreensão.
-87.
 PACER TUBBS
 Esteve lá.
 J. CURBY GREMLIN
@@ -3259,7 +3174,6 @@ No ZUNDAPP.
 VOZ DO MOTOR
 Cascavel.
 E finalmente de volta ao monitor. O motor.
-88.
 VOZ DO MOTOR
 Limão. Mas os insultos deles apenas nos
 dão força. Porque hoje, meus amigos...
@@ -3290,7 +3204,6 @@ vez de rir de volta.
 ESTRONDO! Outro piloto explode um motor. Mater SALTA novamente.
 EXT. CURSO DE CORRIDA - MESMO
 Enquanto o piloto bate no corrimão ---
-89.
 DAVID HOBBSCAP (VO)
 Outro acidente! É o número nove, Nigel
 Gearsley.
@@ -3327,7 +3240,6 @@ Allinol com raiva.
 INT. QUARTO PRIVADO - CASSINO - CONTÍNUO
 As telas de vídeo agora estão preenchidas com UMA IMAGEM – das
 PLATAFORMAS DE PETRÓLEO no Pacífico desde o início do filme.
-90.
 VOZ DO MOTOR
 E nós, os proprietários da maior reserva
 inexplorada de petróleo do mundo, nos
@@ -3362,8 +3274,7 @@ FINAL
 Não!
 INT. QUARTO PRIVADO - CASSINO - CONTÍNUO
 VOZ DO MOTOR
-Viva os limões!
-91.
+Viva os limões!.
 EXT. CURSO DE CORRIDA
 Grem ZAPA O RACER.
 Chamas explodiram de Todoroki. Ele perde o controle.
@@ -3395,7 +3306,6 @@ FRANCESCO
 O que está acontecendo?
 Eles veem o acúmulo em um monitor suspenso. Sirenes soam enquanto um
 MEDIC CHOPPER voa para o local do engavetamento.
-92.
 McQueen
 (percebe)
 Oh não.
@@ -3432,7 +3342,6 @@ BRENT MUSTANGBURGER (NA TV)
 Aí está. Sir Miles Axlerod claramente devastado
 anunciando que não exigirá que os carros usem
 Allinol na corrida final.
-93.
 PROFESSOR ZUNDAPP
 Uma torrada! Até a morte do Allinol e do
 combustível alternativo para sempre!
@@ -3465,7 +3374,6 @@ Ele se vira e vê que McQueen está sendo entrevistado nos monitores.
 MCQUEEN (NA TV)
 Acidentes fazem parte das corridas, eu sei.
 Mas algo assim nunca deveria acontecer.
-94.
 DARRELL CARTRIP (NA TV)
 Eles estão deixando você escolher o
 combustível para a corrida final. Você tem
@@ -3502,7 +3410,6 @@ ZZZZZAT! Seu disfarce holográfico desaparece e rapidamente percorre todos os
 seus disfarces anteriores, finalmente revelando o velho e enferrujado Mater.
 PROFESSOR ZUNDAPP
 É o espião americano!
-95.
 Os bandidos sacam armas aterrorizantes.
 MATÉRIA
 Papai.
@@ -3537,7 +3444,6 @@ McQueen!
 Mater olha para o porto, sobre o qual sobrevoa. Ele avista um MOTORBOAT.
 Mater BAIXA seu anzol e rouba uma carona atrás do barco EM DIREÇÃO A
 MCQUEEN.
-96.
 BARCO A MOTOR ITALIANO
 Aspetti!
 A lancha não fica feliz com isso, tenta sacudi-lo. Mater é JOGADO EM UMA
@@ -3576,7 +3482,6 @@ McQueen! McQueen!
 APENAS FORA DO PALCO DE IMPRENSA - McQueen é conduzido em direção à saída.
 CONTATO COM A IMPRENSA
 Por aqui,signore.
-97.
 MATER (OS)
 (distante)
 McQueen!
@@ -3612,7 +3517,6 @@ McQueen
 Matéria?!
 McQueen avista um TOW HOOK, movendo-se no meio da multidão em sua
 direção, como “Tubarão”.
-98.
 McQueen
 Com licença.
 McQueen desaparece no meio da multidão da imprensa.
@@ -3647,7 +3551,6 @@ McQueen
 Eu realmente pensei ter ouvido meu amigo.
 Enquanto ele se afasta, a imprensa e os curiosos começam a se
 colocar entre ele e Ivan, que não se mexe.
-99.
 IVAN, O CAMINHÃO DE
 REBOQUE (para McQueen)
 Na Inglaterra você estará acabado. Na
@@ -3682,7 +3585,6 @@ digo, essa é a genialidade disso.
 FADE IN em Mater, de volta ao Cassino, olhando seu reflexo na janela de vidro.
 É o mesmo momento de antes, exceto que agora estamos assistindo de uma
 PERSPECTIVA DESTACADA E FLUTUANTE.
-100.
 FINN (NO RÁDIO)
 Ninguém percebe que está sendo
 enganado porque está muito ocupado
@@ -3721,7 +3623,6 @@ Enquanto Mater bebe água de uma fonte:
 McQueen
 (envergonhado)
 Matéria?!
-101.
 TODOS OS RACERS, com FRANCESCO na frente e no centro, riem de Mater.
 - Em MCQUEEN, agora repreendendo Mater momentos depois.
 MATÉRIA
@@ -3757,7 +3658,6 @@ Fora do GONG na festa ---
 INT. GRANDE BENTLEY - DIA
 - - - para o GONG de um RELÓGIO.
 CLOSE ON MATER enquanto ele abre os olhos.
-102.
 Ao seu redor, tudo o que ele vê são PEÇAS GIGANTES DE UM RELÓGIO
 MECANIZADO.
 HOLLEY e FINN também estão aqui, amarrados pára-choques com pára-choques
@@ -3790,7 +3690,6 @@ elogiando você por ser um bom espião.
 MATÉRIA
 Eu não sou um espião!
 Isso ecoa durante todo o relógio.
-103.
 MATÉRIA
 Eu tenho tentado te dizer isso o tempo todo.
 Na verdade, sou apenas um caminhão de
@@ -3829,7 +3728,6 @@ A grande mão de Big Bentley CLICA à frente por mais um minuto. Mas estamos
 um pouco mais longe disso do que antes.
 SALLY (OS)
 Viemos assim que você ligou.
-104.
 INT. POÇO DE MCQUEEN - LONDRES
 Sally, ladeada por Red, Flo e Ramone, estão na frente de ----
 - - - McQueen e o resto da equipe.
@@ -3868,7 +3766,6 @@ dizendo isso, mas... espero que você ganhe
 hoje. Mostre ao mundo que eles estão
 errados sobre o Allinol.
 McQueen percebe isso. Ele olha para Sally.
-105.
 SALLY
 Mater gostaria que você corresse.
 McQueen
@@ -3901,7 +3798,6 @@ Eu não fiz nada. Shh! Estou
 conversando com o professor ---
 Estão todos falando ao mesmo tempo e por um momento não
 conseguimos entender o que está sendo dito.
-106.
 ACER
 Você o quebrou.
 GREM
@@ -3938,8 +3834,6 @@ GREM
 O quê, você não achou que pegaríamos
 suas balas?
 Mater OBSERVA ALGO.
-Traduzido do Inglês para o Português - www.onlinedoctranslator.com
-107.
 FECHAR O QUE MATER VÊ: Um pequeno pedaço de suas cordas foi
 raspado pelo Gatling.
 Ele cuidadosamente gira suas armas de volta, fingindo que não viu nada.
@@ -3974,7 +3868,6 @@ Preciso tirar todos vocês daí!
 FINAL
 Não há tempo. McQueen precisa de sua
 ajuda, Mater.
-108.
 MATÉRIA
 Mas não posso, sou apenas um guincho.
 FINAL
@@ -4010,7 +3903,6 @@ HOLLEY
 Tentando voltar no tempo. Se eu puder
 inverter a polaridade...
 Ela os dispara novamente. Ataque direto!
-109.
 Holley SUCULA a caixa de câmbio com ALTA TENSÃO. O RELÓGIO PARA. Ele se
 inverte.
 A roda de Finn e Holley agora gira para longe do perigo.
@@ -4045,7 +3937,6 @@ caminho mais rápido para ---
 Holley tira ASAS do seu lado.
 HOLLEY
 Feito.
-110.
 FINAL
 (impressionado)
 Senhorita Shiftwell.
@@ -4080,7 +3971,6 @@ Está tudo bem?
 MATÉRIA
 Não! Não está tudo bem! Tem uma bomba
 aqui! Vocês precisam sair! Agora!
-111.
 TODOS
 - Uma bomba? - Huh? - Uau.
 FINN (NO RÁDIO)
@@ -4115,7 +4005,6 @@ A visão dessa cena pela janela de um camarote luxuoso. Revele o Zundapp no
 reflexo da janela. Ele está observando de dentro. Ele está pronto para apertar
 um BOTÃO DETONADOR.
 À medida que o pneu dianteiro do Zundapp se aproxima do detonador ---
-112.
 INT. POÇO DE MCQUEEN - CONTÍNUO
 MATÉRIA
 Não chegue mais perto!
@@ -4149,7 +4038,6 @@ Mater sobe a pista. McQueen ganha rapidamente. Como Mater está andando
 para trás, eles ficam cara a cara (mas ainda com alguma distância entre eles).
 McQueen
 Mater, espere!
-113.
 MATÉRIA
 Fique atrás! Se você chegar perto de mim,
 você vai se machucar muito!
@@ -4187,7 +4075,6 @@ Quase lá...
 EM MCQUEEN. Ele já está farto de brincadeiras. Aí vem ele.
 McQueen
 Eu não vou... deixar você...
-114.
 Ele vai pegá-lo agora.
 McQueen
 . . . vá embora de novo!
@@ -4223,7 +4110,6 @@ foguete.
 CORTE PARA:
 EXT. RUAS DE LONDRES - DIA
 POV aéreo: Mater e McQueen desviam pelas ruas.
-115.
 INT. BOX LUXO - CONTÍNUO
 Zundapp ainda está apertando furiosamente o botão quando Holley aparece
 logo além do vidro.
@@ -4256,7 +4142,6 @@ EXT. RUAS DE LONDRES - MESMAS
 Finn grita em uma esquina e vê ---
 - - - Professor Zundapp, acelerando em direção às docas ao longo do Tâmisa, onde um
 NAVIO DE COMBATE espera.
-116.
 NAVIO DE COMBATE
 Depressa, professora!
 NO ZUNDAPP - Com Finn ganhando rápido, ele acelera. De repente
@@ -4289,7 +4174,6 @@ Zundapp, a “corda” neste cabo de guerra, cede sob a tensão.
 PROFESSOR ZUNDAPP
 Desista, McMíssil!
 Finn lança uma confusão de balas, granadas e outras armas no ar ---
-117.
 O ÍMÃ SUGA rapidamente como um buraco negro ---
 PENSE! Tudo gruda no ímã, bem próximo às balas de Finn. São BOMBAS,
 GRANADAS, FOGUETES e um pequeno detonador com uma luz piscando
@@ -4321,7 +4205,6 @@ Holley, McQueen e Mater estão agora parados.
 HOLLEY
 Mater, temos que tirar essa bomba de
 você.
-118.
 Ela já está escaneando a bomba, trabalhando.
 McQueen
 Bombear?
@@ -4357,7 +4240,6 @@ PROFESSOR ZUNDAPP
 Ops. Esqueci de mencionar que só pode ser
 desarmado por quem o ativou?
 Holley imediatamente enfia uma ARMA na grelha de Zundapp.
-119.
 HOLLEY
 Diz!
 PROFESSOR ZUNDAPP
@@ -4396,7 +4278,6 @@ MATÉRIA
 (para os limões)
 Fellers, ouçam.
 (MAIS)
-120.
 MATER (CONTINUAÇÃO)
 Eu sei o que você está passando. Todo
 mundo também riu de mim durante toda a
@@ -4431,7 +4312,6 @@ Guido afasta seu bandido incansável, GRITANDO COM ELE EM
 ITALIANO.
 Mater KARATE CHOPS limões, três e quatro de cada vez.
 Ramone PINTA SPRAY o para-brisa de um limão.
-121.
 PACER TUBBS
 Retiro!
 Alguns limões voltam por onde vieram. BLOCKING THEIR PATH é uma linha de
@@ -4469,7 +4349,6 @@ levando você a sério, entãoelesprecisa
 mudar. Você não. Eu sei disso porque estava
 errado antes. Agora você pode fazer isso.
 Você é a bomba.
-122.
 MATÉRIA
 Obrigado parceiro.
 McQueen
@@ -4505,7 +4384,6 @@ Mater começa a orientá-los na direção que deseja. Ele e McQueen estão
 VOANDO SOBRE LONDRES.
 EXT. VARANDA - PALÁCIO DE BUCKINGHAM - DIA
 A RAINHA, seus assistentes e diversos dignitários estão aqui.
-123.
 RAINHA
 Quem está ganhando a corrida?
 Mater e McQueen caem do céu. Eles pousam e param pouco antes dos
@@ -4544,7 +4422,6 @@ McQueen
 Mater, vá direto ao assunto!
 MATÉRIA
 OK.
-124.
 Ele se volta para Miles Axlerod.
 MATÉRIA
 É ele.
@@ -4581,7 +4458,6 @@ MILHAS AXLEROD
 Este caminhão é uma loucura. Ele vai
 matar todos nós!
 Miles Axlerod RECUA até a beira do palco.
-125.
 MILHAS AXLEROD
 Ficar longe!
 HOLLEY
@@ -4619,7 +4495,6 @@ GUARDA
 Ok, é isso.
 E os GUARDAS DA RAINHA tiram a Rainha e o Príncipe Wheeliam de lá
 RAPIDAMENTE ---
-126.
 MILHAS AXLEROD
 Espere! Alguém me salve! O caminhão está uma
 loucura!
@@ -4657,7 +4532,6 @@ HOLLEY
 MILHAS AXLEROD
 Como o caminhão de reboque descobriu
 isso?
-127.
 McQueen
 (para Mate)
 É oficial. Você virá para todas as minhas
@@ -4697,7 +4571,6 @@ propósito, vocês já se conheceram? Rainha?
 McQueen. McQueen, Rainha. McQueen?
 McMíssil.
 (MAIS)
-128.
 MATER (CONTINUAÇÃO)
 McMíssil, McQueen. Rainha?
 McMíssil.
@@ -4734,7 +4607,6 @@ HOLLEY
 Olá, Mater. É tão bom ver você de novo.
 MATÉRIA
 O que você está fazendo aqui?
-129.
 FINAL
 Nossos satélites captaram um comunicado
 urgente.
@@ -4775,7 +4647,6 @@ rapidamente.
 RAMONE
 Sim, claro. Não há problema. Deixa-me ir
 buscar as minhas ferramentas.
-130.
 HOLLEY
 Ah, não, não. Estou mantendo esse
 amassado. É muito valioso.
@@ -4816,7 +4687,6 @@ porque nunca confiei em Axlerod, você está
 completamente errado, cara.
 (re: Sargento)
 Era ele.
-131.
 SARGE
 Uma vez Big Oil, sempre Big Oil. Homem.
 FILMORE
@@ -4834,136 +4704,129 @@ Cara, mal posso esperar para começar a
 arrasar. Isso vai ser perverso.
 JEFF GORVETTE
 Sim, deveríamos fazer isso todos os anos.
-McQueen
-I just figured, we never found out who the
-world's fastest car is. Plus: no press, no
-trophy. Just racing - the way I like it.
+Imaginei que nunca descobrimos quem é o
+carro mais rápido do mundo. E mais: sem imprensa, sem
+troféu. Apenas corridas - do jeito que eu gosto.
 FRANCESCO
-Francesco likes it like this too.
-McQueen SEES Sally. He and Francesco approach her.
+Francesco também gosta desse jeito.
+McQueen vê Sally. Ele e Francesco se aproximam dela.
 MCQUEEN
-Francesco. I'd like you to meet ---
+Francesco. Eu gostaria que você conhecesse ---
 FRANCESCO
-Signorina Sally. It is official: Lightning
-McQueen is the luckiest car in the world.
+Signorina Sally. É oficial: Relâmpago
+McQueen é o carro mais sortudo do mundo.
 SALLY
-(swooning)
-Why, thank you ---
+(desmaiando)
+Obrigada!
 FRANCESCO
-Which he will have to be to have a chance
-against Francesco today.
-Francesco turns to leave. As he's moving away:
-132.
+E ele terá que ser assim para ter uma chance
+contra Francesco hoje.
+Francesco se vira para sair. Enquanto ele está se afastando:
 FRANCESCO
-See you at the finish line, Mc---
-Francesco STOPS.
+Vejo você na linha de chegada, Mc...
+Francesco pára.
 FRANCESCO
-What is that?
-McQueen has a new bumper sticker: "Ka-ciao, Francesco."
+O que é isso?
+McQueen tem um novo adesivo para o para-choque: "Ka-ciao, Francesco".
 MCQUEEN
-It's just something I had made up for the
-occasion.
+É apenas algo que eu inventei para a
+ocasião.
 FRANCESCO
-Is good, McQueen. Very funny. It was funnier
-when I did it, but it’s very funny. What are you
-going to do next? Are you going to take off
-your fenders? Try it. You’ll like it.
-Francesco leaves. We stay with McQueen and Sally.
+É bom, McQueen. Muito engraçado. Era mais engraçado
+quando eu o fiz, mas é muito engraçado. O que você
+vai fazer agora? Você vai tirar
+seus para-lamas? Experimente. Você vai gostar.
+Francesco vai embora. Ficamos com McQueen e Sally.
 SALLY
-So he's not so good-looking.
+Então ele não é tão bonito.
 MCQUEEN
-Yeah. Nice try.
+É verdade. Boa tentativa.
 SALLY
-I’m serious.
+Estou falando sério.
 MCQUEEN
-That’s why I love you, Sally.
-(as he leaves)
-Wish me luck.
+É por isso que eu amo você, Sally.
+(enquanto ele sai)
+Deseje-me sorte.
 SALLY
-You don't need it!
-He drives off. Flo approaches Sally.
+Você não precisa disso!
+Ele sai dirigindo. Flo se aproxima de Sally.
 FLO
-Mmm-mmm. That Francesco is
-finelooking.
+Mmm-mmm. Esse Francesco é
+bonito.
 SALLY
-And those open wheels.
+E essas rodas abertas.
 FLO
-I'm gonna have to go get myself some
-coolant.
-133.
-EXT. MAIN STREET - LATER
-The racers at the starting grid. ON THE TRAFFIC LIGHT in the center of town. It
-goes from RED to GREEN!
-The RACERS SPEED OFF, tearing up main street and out of town, blazing past
-tourists ---
-EXT. WILLY'S BUTTE - DAY
-As the racers, led by McQueen and Francesco, take the wide, sweeping turn
-around Willy's Butte we CRANE UP to see MATER, FINN, HOLLEY, and the
-Radiator Springs gang watching. Everyone CHEERS.
+Vou ter que comprar um pouco de
+refrigerante.
+EXT. RUA PRINCIPAL - MAIS TARDE
+Os pilotos no grid de largada. No semáforo no centro da cidade. Ele
+passa de VERMELHO para VERDE!
+EXT. WILLY'S BUTTE - DIA
+Enquanto os corredores, liderados por McQueen e Francesco, fazem a curva ampla e arrebatadora
+em torno de Willy's Butte, vemos MATER, FINN, HOLLEY e a turma de
+gangue de Radiator Springs assistindo. Todos aplaudem.
 MATER
-Go McQueen!! Whoo-hoo!!!
-Holley gets an alert.
+Força McQueen!!! Whoo-hoo!!!
+Holley recebe um alerta.
 HOLLEY
-Finn, time to go. Siddeley’s gassed,
-geared and ready to fly.
-Finn starts to back up.
+Finn, é hora de ir. O Siddeley está com gás,
+engrenado e pronto para voar.
+Finn começa a se afastar.
 MATER
-You’re leaving already?
+Você já está indo embora?
 FINN
-We’ve got another mission, Mater. Just
-stopped by here to “pick something up."
-They both eye Mater, expectantly.
+Temos outra missão, Mater. Só
+Parei aqui para "pegar uma coisa".
+Os dois olham para Mater, com expectativa.
 MATER
-Something tells me you’re not talking
-about souvenir bumper stickers.
+Algo me diz que você não está falando
+de adesivos de para-choque de lembrança.
 FINN
-Her Majesty asked for you
-personally, Mater.
+Sua Majestade perguntou por você
+pessoalmente, Mater.
 MATER
-But I told you all before. I’m not a spy.
+Mas eu já lhe disse tudo antes. Não sou um espião.
 HOLLEY
-We know.
-134.
+Nós sabemos.
 FINN
-Spy or not, you’re still the smartest, most
-honest chap we’ve ever met.
+Espião ou não, você ainda é o cara mais inteligente e
+honesto que já conhecemos.
 HOLLEY
-Don’t forget massively charming.
-Mater looks over at Holley. He looks touched.
+Não se esqueça de que é extremamente charmoso.
+Mater olha para Holley. Ele parece emocionado.
 MATER
-Well, thanks. But as much fun as it was
-hanging with y’all, this...
-He looks over to his friends who watch the race, CHEER MCQUEEN ON.
+Bem, obrigado. Mas por mais divertido que tenha sido
+estar com vocês, isso...
+Ele olha para os amigos que assistem à corrida e torcem por MCQUEEN.
 MATER
-This is home.
+Aqui é o lar.
 HOLLEY
-That’s alright, we understand. But I'll be back.
-You still owe me that first date.
+Tudo bem, nós entendemos. Mas eu voltarei.
+Você ainda me deve aquele primeiro encontro.
 FINN
-If there’s ever anything I can do for you,
-just let me know.
+Se houver algo que eu possa fazer por você,
+é só me avisar.
 MATER
-Well, I sure appreciate that, thank you.
-(thinks)
-Actually... there is one thing.
-CUT TO:
-EXT. RADIATOR SPRINGS - MOMENTS LATER
-MATER, blazing forward fast.
+Bem, eu agradeço muito, obrigada.
+(pensa)
+Na verdade... há uma coisa.
+CORTA PARA:
+EXT. MOLAS DO RADIADOR - MOMENTOS DEPOIS
+MATER, avançando rapidamente.
 MATER
 Whoo-hoo!!!
-He ROCKETS FORWARD, through the whole town. In doing so he GRABS A
-BROKEN DOWN OTIS, hooking him ---
+Ele se lança para a frente, atravessando toda a cidade. Ao fazer isso, ele agarra um
+OTIS QUEBRADO, enganchando-o ---
 OTIS
-Whoa!!!
-- - - and TOSSING him right into Ramone’s.
+Uau!!!
+- - e o arremessa direto para Ramone.
 OTIS (O.S.)
-Thanks, Mater!
-135.
-ON THE “RACE TRACK” - Mater flies past ALL the racers, including
+Obrigado, Mater!
+NA "PISTA DE CORRIDA" - Mat passa voando por todos os corredores, inclusive
 Francesco ---
 FRANCESCO
-Impossible!
-- - - until he approaches MCQUEEN.
+Impossível!
+- - até que ele se aproxima de MCQUEEN.
 MCQUEEN
 Matéria!?
 MATÉRIA
