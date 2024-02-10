@@ -254,3 +254,4 @@ Doc Hudson (1952): 27 de 29 disputadas
 McQueen 22.49% (92 de 409 disputadas)
 The King 20.52% (118 de 575 disputadas )
 Doc Hudson 55.71% (78 de 140 disputadas)
+`).then(e => console.log(`Código finalizado, ${e} mensagens enviadas`)).catch(console.error)
