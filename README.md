@@ -11,4 +11,4 @@ No WhatsApp Web (versão de navegador), clique fora da conversa e selecione a op
 
 Pronto! 
 
-Este usuário não se responsabiliza por qualquer consequência ocorrida na utilização desse script, visto que ele somente está sendo disponibiliazdo para lesar estelionatários que por ventura utilizem imagens de terceiros para benefícios próprios.
+Este usuário não se responsabiliza por qualquer consequência ocorrida na utilização desse script, visto que ele somente está sendo disponibilizado para lesar estelionatários que por ventura utilizem imagens de terceiros para benefícios próprios.
